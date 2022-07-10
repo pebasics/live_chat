@@ -1,1 +1,1 @@
-# Live chat for PC & Electronic basics website
+# Live chat for PC & Electronic Basics website
